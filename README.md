@@ -1,4 +1,4 @@
-[Come kick it with us at UCI](https://www.facebook.com/groups/acmuci/)
+### [Come kick it with us at UCI](https://www.facebook.com/groups/acmuci/)
 
 ### Week 1
 
